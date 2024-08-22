@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **react, nextjs**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1pQXLlEICKH4r5sun8kLEz6wANXS8AFBk?usp=sharing](https://drive.google.com/drive/folders/1pQXLlEICKH4r5sun8kLEz6wANXS8AFBk?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/drive/folders/14qfJT8b21BzA8RKEaZrmmbuoXq3IhwWA?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
